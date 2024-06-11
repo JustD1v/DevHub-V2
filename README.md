@@ -1,6 +1,6 @@
 # DevHub V2
 
-## Powerful script hub.
+## Powerful, Undetectable, Professional.
 
 ## Supported Games:
 
