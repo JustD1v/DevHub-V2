@@ -1,1 +1,3 @@
-Testing
+In Development...
+
+https://discord.gg/7TRdUncbr8
